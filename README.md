@@ -1,8 +1,5 @@
 # WELCOME! ✨
 
-![WELCOME banner](https://files.catbox.moe/i0jj47.png)
-
----
 
 ![VOX Banner](https://files.catbox.moe/9mcii4.jpg)
 
