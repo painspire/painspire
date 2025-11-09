@@ -1,17 +1,18 @@
 # WELCOME! ✨
 
-
-![VOX Banner](https://files.catbox.moe/9mcii4.jpg)
+<div align="center">
+  <img src="https://files.catbox.moe/9mcii4.jpg" alt="VOX Banner" style="max-width: 100%; height: auto; display: block; object-fit: contain;">
+</div>
 
 ## 👋 About Me
 - Call me August or Xylo!
 - Transmasc-pansexual
--plays ponytown
+- Plays Ponytown 🐴
 
 ---
 
 ### 🧰 Skills
-nothing, I'm useless
+Nothing yet... but I’m learning! 🌱
 
 ---
 
