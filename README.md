@@ -1,7 +1,7 @@
 # WELCOME! ✨
 
-<div align="center" style="width: 100%; overflow: visible;">
-  <img src="https://files.catbox.moe/7nhfwi.jpg" alt="VOX Image" style="max-width: 100%; height: auto; object-fit: contain; display: block;">
+<div align="center">
+  <img src="https://files.catbox.moe/7nhfwi.jpg" alt="VOX Banner" style="max-width: 100%; height: auto; display: block; object-fit: contain;">
 </div>
 
 ## 👋 About Me
