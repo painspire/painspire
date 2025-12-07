@@ -6,14 +6,17 @@
 
 ## 👋 About Me
 - Call me August or Xylo!
-- Transmasc-pansexual
+- Transmasc-pansexual-abrosexual-interbinary.
 - Plays Ponytown 🐴
+- Therian - Quadrobist - kemonomimi 🦊
+- Theriotypes: Red fox, fennec fox . ~
+- He/him/they/them
 
 ---
 
 ### 🧰 Skills
-Nothing yet... but I’m learning! 🌱
+i guess uhhh jumping high? i can do fox vocals!1! 🦊
 
 ---
 
-⭐ **Thanks for visiting my profile!**
+⭐ **tysm for visiting my profile!**
