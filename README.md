@@ -1,4 +1,3 @@
-# WELCOME! ><
 
 <div align="center">
   <img src="https://files.catbox.moe/nszimw.jpg" width="300"/>
@@ -6,7 +5,7 @@
 
 ## 👋 Who m i?? 
 
-- Call me August or Xylo!
+- Call me August or Xylo! (MAYBE ALSO PAIN!)
 - transgender, almondsexual
 - Plays Ponytown
 - Therian - somewhat Quadrobist
@@ -15,4 +14,4 @@
 
 ---
 
-⭐ **tysm for visiting my profile!**
+⭐ **READ STRAWPAGE AND PRONOUNS PAGE.**
