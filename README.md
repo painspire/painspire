@@ -1,19 +1,17 @@
-# WELCOME! ✨
+# WELCOME! ><
 
 <div align="center">
-  <img src="https://files.catbox.moe/nszimw.jpgalt="Lucifer Banner style="max-width: 100%; height: auto; display: block; object-fit: contain;">
+  <img src="https://files.catbox.moe/YOURIMAGE.jpg" width="300"/>
 </div>
 
-## 👋 About Me
+## 👋 Who m i?? 
+
 - Call me August or Xylo!
-- transgender,almondsexual, .
-- Plays Ponytown 🐴
+- transgender, almondsexual
+- Plays Ponytown
 - Therian - somewhat Quadrobist
-- Theriotypes: coyote, fennec fox, artic fox
-- prounouns; he/they ♡
-
-
-
+- Theriotypes: coyote, fennec fox, arctic fox
+- pronouns: he/they ♡
 
 ---
 
