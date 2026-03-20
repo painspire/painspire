@@ -1,7 +1,7 @@
 # WELCOME! ✨
 
 <div align="center">
-  <img src="https://files.catbox.moe/nszimw.jpgalt="Lucifer Banner" style="max-width: 100%; height: auto; display: block; object-fit: contain;">
+  <img src="https://files.catbox.moe/nszimw.jpgalt="Lucifer Banner style="max-width: 100%; height: auto; display: block; object-fit: contain;">
 </div>
 
 ## 👋 About Me
